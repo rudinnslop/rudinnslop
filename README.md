@@ -1,5 +1,5 @@
 <p align="center">fizzy <img width="10" height="10" alt="image" src="https://github.com/user-attachments/assets/91c9e4fb-024e-4fd8-b41e-e5810601d354" />  any <img width="10" height="10" alt="image" src="https://github.com/user-attachments/assets/5195863d-dde6-4c27-88a3-afebc2e7b59e" />  brazilian
 <p align="center">mostly at UTDR area, probably offtab (w2i)
-<p align="center">C+H freely unless if im with a friend
+<p align="center">C+H freely if im not with a friend
 <p align="center"><img width="44" height="44" alt="image" src="https://github.com/user-attachments/assets/979f8baa-884c-445e-91da-410697f68ee2" /><img width="44" height="44" alt="image" src="https://github.com/user-attachments/assets/e577c2d7-028e-4135-bc05-350ab5670eab" /><img width="44" height="44" alt="image" src="https://github.com/user-attachments/assets/dcb5868e-69a3-429e-8414-a616dabf0071" /><img width="212" height="183" alt="image" src="https://deltarune.wiki/images/Man_overworld_retro_tree.gif?cb=q0v7q6&h=thumb.php&f=Man_overworld_retro_tree.gif" /><img width="44" height="44" alt="image" src="https://github.com/user-attachments/assets/c08febfd-1cb4-4433-b5a6-d807e8718a27" />
 
